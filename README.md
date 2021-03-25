@@ -1,1 +1,0 @@
-# karinegmg.github.io
